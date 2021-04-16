@@ -8,7 +8,7 @@ some of the skins maybe private or unfinished
 ![](https://osuskins.net/screenshots/wEaMJGb.jpg)
 
 
-# [[���ؖ�^�P]Nishikino Maki -]](https://osuskins.net/skin/zkWbziA)
+# [[-[���ؖ�^�P]Nishikino Maki -]](https://osuskins.net/skin/zkWbziA)
 ![](https://i.imgur.com/hCCraeE.png)
 
 
