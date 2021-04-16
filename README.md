@@ -4,7 +4,7 @@ some of the skins maybe private or unfinished
 # [- # TowaMajiTenshi [Vinh129's Edit] # -](https://drive.google.com/file/d/1zJNW17nBYZ9C9MIW9sVBnb3dJ0doUHrb/view?usp=sharing)
 ![](https://i.imgur.com/jATOE0r.png)
 
-# [[YUGEN] # -](https://osuskins.net/skin/wEaMJGb)
+# [[YUGEN]](https://osuskins.net/skin/wEaMJGb)
 ![](https://osuskins.net/screenshots/wEaMJGb.jpg)
 
 
