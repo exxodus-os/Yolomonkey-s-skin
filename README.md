@@ -11,8 +11,7 @@ some of the skins maybe private or unfinished
 # [[-[���ؖ�^�P]Nishikino Maki -]](https://osuskins.net/skin/zkWbziA)
 ![](https://i.imgur.com/hCCraeE.png)
 
-
-# [[- - [KSE] v2 kdoge's 白上フブキ　日本語「Shirakami Fubuki」 V3.4.5] # -]](https://drive.google.com/file/d/1RHYEf-LQZaV8R5tT4tRapgd6ykoXvQNk/view)
+# [- - [KSE] v2 kdoge's 白上フブキ　日本語「Shirakami Fubuki」 V3.4.5](https://drive.google.com/file/d/1RHYEf-LQZaV8R5tT4tRapgd6ykoXvQNk/view)
 ![](https://i.imgur.com/hmCZC0G.png)
 
 
