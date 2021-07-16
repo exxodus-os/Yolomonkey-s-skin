@@ -4,7 +4,7 @@ some of the skins maybe private or unfinished
 # notice
 if some of the links broke feel free to dm me on discord at exxodustt#7777
 
-# [- # TowaMajiTenshi [Vinh129's Edit] # -](https://drive.google.com/file/d/1zJNW17nBYZ9C9MIW9sVBnb3dJ0doUHrb/view?usp=sharing)
+# [- # TowaMajiTenshi [Vinh129's Edit] # -](https://www.mediafire.com/file/dzk1p93d47zia8x/-+#+TowaMajiTenshi+-Vinh129's+Edit-+#+-.osk/file)
 ![](https://i.imgur.com/jATOE0r.png)
 
 # [[YUGEN]](https://osuskins.net/skin/wEaMJGb)
