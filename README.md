@@ -2,7 +2,7 @@
 some of the skins maybe private or unfinished
 
 # notice
-if some of the links broke feel free to dm me on discord at exxodustt#7777
+if some of the links broke feel free to dm me on discord at exxodustt#7748
 
 # [- # TowaMajiTenshi [Vinh129's Edit] # -](https://www.mediafire.com/file/dzk1p93d47zia8x/-+#+TowaMajiTenshi+-Vinh129's+Edit-+#+-.osk/file)
 ![](https://i.imgur.com/jATOE0r.png)
